@@ -4,9 +4,10 @@
 
 - ⋆⭒˚｡⋆💬 Ask me about **Unity, Blender, Clip studio paint & FMOD**
   
+- ˋ°•*⁀➷📫 How to reach me **krakenowo626@gmail.com**
+  
 - ⋆⭒˚｡⋆🌺Portfolio [https://www.artstation.com/chimera_kraken](https://www.artstation.com/chimera_kraken)
   
-- ˋ°•*⁀➷📫 How to reach me **krakenowo626@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
