@@ -1,10 +1,11 @@
 <h1 align="center">₊˚⊹♡🍰Hi, I'm Karen Gomez🍓♡⊹˚₊</h1>
 <h3 align="center">Digital Artist</h3>
 
-- ⋆⭒˚｡⋆🌺Portfolio [https://www.artstation.com/chimera_kraken](https://www.artstation.com/chimera_kraken)
 
 - ⋆⭒˚｡⋆💬 Ask me about **Unity, Blender, Clip studio paint & FMOD**
-
+  
+- ⋆⭒˚｡⋆🌺Portfolio [https://www.artstation.com/chimera_kraken](https://www.artstation.com/chimera_kraken)
+  
 - ˋ°•*⁀➷📫 How to reach me **krakenowo626@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
